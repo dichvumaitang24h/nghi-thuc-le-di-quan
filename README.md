@@ -7,7 +7,7 @@
 # 1\. Lễ di quan là gì?
 
 # Di quan là nghi thức đưa linh cữu (quan tài) của người đã khuất rời khỏi nơi quàn (thường là nhà riêng hoặc nhà tang lễ) để đi đến nơi chôn cất hoặc hỏa táng. Đây là một trong những nghi lễ cuối cùng trong tang lễ, mang ý nghĩa tiễn biệt người mất rời xa dương thế, chính thức sang thế giới bên kia.
-
+Xem thêm: https://maitanggiangtho.vn/nghi-thuc-le-di-quan/
 # 
 
 # Lễ di quan không chỉ đơn thuần là việc di chuyển thi hài mà còn chứa đựng giá trị tâm linh sâu sắc. Đối với gia quyến, đây là khoảnh khắc đau lòng nhưng cũng là lúc thể hiện trọn vẹn đạo hiếu, lòng thành kính và sự tiễn đưa trang trọng nhất dành cho người đã khuất.
